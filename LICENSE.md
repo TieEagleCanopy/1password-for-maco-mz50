@@ -1,4 +1,4 @@
-# 
+# custom 1Password for macOS Integration | privacy-protection + credit-card-storage offers the most advanced 1Password for macOS integration, with privacy-protection and
 
 
 
